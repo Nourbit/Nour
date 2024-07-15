@@ -253,6 +253,114 @@ Notes  involuntary 自然而然的 manslaughter 过失杀人 trial 审判 预赛
 
 rapidresponse   快速反应  Butler 男仆、巴特勒  pierced 刺破 穿孔 whizzing 旋离
 
+  ### 2024.7.15
+  
+
+Bankir and his men have been trying to fight off Russian attacks along the Ukrainian front lines for more than two years. But it’s only now that they are finally able to strike where it hurts: Inside Russia’s own territory.
+
+The newly granted permission by the United States and other allies to use Western weapons to strike inside Russia has had a huge impact, Bankir said. “We have destroyed targets inside Russia, which allowed for several successful counteroffensives. The Russian military can no longer feel impunity and security,” the senior officer in Ukraine’s Security Service (SBU) told CNN. For security reasons, he asked to be identified by his call sign only.
+
+After many months on the back foot because of ammunition and manpower shortages, Kyiv is finally able to take full advantage of Western military aid that started to flow into the country last month, after months of delays.
+
+Soldiers on the front lines say the deliveries are beginning to make a difference – especially since they can now use the arsenal to strike across the border at certain military targets supporting Russia’s offensive in Ukraine.
+
+“We can see the impact of the aid every day. Artillery, longer-range multiple launch rocket systems with various types of ammunition and submunitions… it’s affecting the overall battlefield picture,” Ivan, an officer with the 148th artillery brigade, told CNN. He also asked for his full name not to be published for security reasons.
+
+“We are deploying the most effective weapons systems in the areas where the Russians are trying to break through the defensive lines and there has been a significant slowdown in the Russian advance,” he added.
+
+While Kyiv hasn’t managed to reclaim large swathes of territory, it has successfully averted what could have been a disaster: The occupation of Kharkiv, Ukraine’s second city.
+
+Ukrainian servicemen of the 148th Separate Artillery Brigade of the Ukrainian Air Assault Forces, prepare to fire a M777 howitzer near a front line in Donetsk region, Ukraine May 1, 2024.
+Ukrainian servicemen of the 148th Separate Artillery Brigade of the Ukrainian Air Assault Forces, prepare to fire a M777 howitzer near a front line in Donetsk region, Ukraine May 1, 2024. Valentyn Ogirenko/Reuters
+‘Tragic moment’
+Part of the northern Kharkiv region, including the cities of Izium, Kupiansk, and Balakliia, fell into Russian hands soon after Moscow launched its full-scale invasion of Ukraine in February 2022.
+
+The occupation was brutal. When the area was liberated in the fall of 2022, Ukrainian troops found evidence of what they say were war crimes committed by Russian forces, including multiple mass graves and torture chambers.
+
+In May this year, Russia launched another cross-border attack on the region, trying to exploit Ukraine’s ammunition shortages before the expected arrival of the first Western weapons.
+
+The consequences were deadly. The Office of the United Nations High Commissioner for Human Rights (OHCHR) said that at least 174 civilians were killed and 690 were injured in Ukraine in May, the highest number of civilian casualties in a year.
+
+In this pool photograph distributed by the Russian state agency Sputnik, Russia's President Vladimir Putin and Indian Prime Minister Narendra Modi hold an informal meeting at the Novo-Ogaryovo state residence, outside Moscow, on July 8, 2024. (Photo by Gavriil GRIGOROV / POOL / AFP) (Photo by GAVRIIL GRIGOROV/POOL/AFP via Getty Images)
+RELATED ARTICLE
+‘Huge disappointment:’ Zelensky blasts Modi meeting with Putin the same day Russian attack devastates Ukraine hospital
+More than half of the civilian casualties were in Kharkiv – even though the region encompasses a relatively small area compared to the whole country.
+
+International security expert Oleksiy Melnyk, a former Ukrainian defense official and the co-director of foreign relations and international security programs at the Razumkov Center in Kyiv, told CNN that the re-occupation of previously liberated areas north of Kharkiv was a “tragic moment” for Ukraine.
+
+But it also marked a major turning point.
+
+“It triggered a change in the position of our Western partners, it encouraged them to, at least partially, remove the restrictions on the use of the Western weapons,” he said.
+
+Fearing an escalation, the US and other Western allies had long prohibited Kyiv from using their weapons to strike inside Russia, restricting their use to Ukrainian areas under Russian occupation.
+
+That has allowed Russia to use the border areas as safe staging grounds for offensives and missile attacks.
+
+“(Russia) knew that Ukraine did not have the capacity to strike these targets on the Russian territory,” Melnyk said.
+
+“If the decision (to provide aid) wasn’t made, if we lost American support and military assistance, that would have been a game changer.”
+
+But the possibility of Russian re-occupation of parts of Kharkiv region convinced some of Ukraine’s key allies, including the US, to lift the restrictions. This allowed Kyiv to hit and destroy or severely damage key targets inside Russia.
+
+President Joe Biden attends a Medal of Honor Ceremony in the East Room of the White House in Washington, DC, on July 3.
+RELATED ARTICLE
+Before Biden can save Ukraine, he must use the NATO summit to save himself
+According to Ukrainian defense authorities, these included a regiment command post in Belgorod region, an ammunition depot in Voronezh, a drone facility and an airfield in Krasnodar, communication centers in Bryansk and several naval sites in occupied Crimea.
+
+The arrival of long-range ATACMS missile systems was a particular game-changer, Melnyk said. While Ukraine was previously able to strike targets inside Russia using Ukraine-made drones, ATACMS make these strikes far more efficient.
+
+“Speed matters,” Melnyk explained. “With drone strikes, Russians have hours to react, because they can detect Ukrainian drones early. Russian pilots can have a coffee and a cigarette before jumping into the cockpit and taking off to take it down. With the ATACMS, it’s a matter of minutes,” he said.
+
+Konrad Muzyka, an independent defense analyst and the director of Rochan Consulting who has recently returned from eastern Ukraine, said Russia is also no longer able to target Kharkiv region with S-300 and S-400 missile systems.
+
+“Ukraine started conducting HIMARS strikes on targets in the Belgorod region and forced the Russians to push their S-300 system with which they were striking Kharkiv much further away, so now Kharkiv is beyond their range of Russian S-300 systems,” he said.
+
+While Russia switched to aerial glide bombs – guided munitions with pop-up wings dropped by fighter jets from a distance of some 60-70 kilometers – out of range of Ukraine’s air defenses, the elimination of the S-300 threat has provided at least some relief to Kharkiv.
+
+People gather following the collapse of a section of a multi-story apartment block in the city of Belgorod, Russia, on May 12, 2024.
+People gather following the collapse of a section of a multi-story apartment block in the city of Belgorod, Russia, on May 12, 2024. Reuters
+Weapons without men, men without strategy?
+But while the new weapons are making some difference, Ukraine is long way off being able to push Russian forces off its territory.
+
+Another officer with the 148th separate artillery brigade who goes by call sign Senator told CNN that there is still a lot more that Ukraine needs.
+
+“It isn’t enough to turn the tide at the front. Enough to hold the enemy back, yes, but not enough to change the situation dramatically,” he said.
+
+“The enemy is now exhausted but not destroyed,” he said, pointing to the fact that Russia still has complete air superiority over Ukraine.
+
+Kyiv is now pinning its hopes on the deliveries of F-16 fighter jets which should start soon – the first Ukrainian pilots were set to complete their training in the US this summer.
+
+But Muzyka said it is far from certain the jets will bring a massive change to Ukraine’s fortunes.
+
+The rising sun peaks over the top of the Jefferson Memorial on a hot summer day on June 18, 2024, in Washington, DC.
+RELATED ARTICLE
+Opinion: As NATO leaders meet in Washington, 5,000 miles away desperation sets in
+“The F-16s are combat aircraft from 1980s and 1990s and their capabilities are worse than the most modern Russian combat aircraft,” he said, adding that the newest Russian jets would likely prevail in an air battle with the F-16.
+
+However, Ukraine can still use the F-16 to deny Russia control over the skies – and push away Russian aircraft delivering bombs.
+
+Yet the new weapons are just part of the puzzle.
+
+“If it had not been for the supplemental package, Ukrainians would be in a much worse situation right now, but at the same time, the current situation is not only the result of a lack of actions by the US Congress, it’s also the result of the decisions that were made and were not made in Kyiv, especially when it comes to mobilization,” Muzyka said.
+
+“The decision to introduce a wider mobilization was probably as important, if not more important, and it came too late,” he said. The new mobilization law, which requires all men between 18 and 60 to register with Ukraine’s military, came into effect in May.
+
+He said that while Ukraine has managed to recruit a significant number of men over the past month and half, it will take time for these new soldiers to be trained up and ready for the front lines.
+
+“Ukrainians are going to be in a very difficult position until August, September, when the first mobilized guys start to enter the front line. If they can get to that point, then there is a big likelihood that they will manage to stabilize the situation from August onwards, but until this happens, more Russian gains are highly likely.”
+
+Muzyka said that with the new weapons arriving and battalions and brigades getting a boost soon from the new recruits, Ukraine will need to decide on its next steps.
+
+“It is unclear what the plans are. What is the strategy for counteroffensives? The problem is that Ukraine is waiting to see what equipment the West can supply them with, and the West is waiting to see what plans Ukraine have for the future,” he said.
+
+Time is of the essence here. Experts estimate that the $60 billion US aid package approved earlier this year will last for – at best – a year or 18 months.
+
+Ukraine’s allies made fresh pledges on arms this week while at a NATO summit in Washington, DC, President Volodymyr Zelensky called for all restrictions on their usage to be lifted.
+
+Given the possibility of former US President Donald Trump winning a second term in November – he has little time to spare.
+
+Note averted 转移 pledge 誓言 restriction 限制条件
+
 ****
 
 
